@@ -1,4 +1,4 @@
-    --- That guy who works on upskilling all day everyday ---
+    --- Technophile ---
 
 <!---
 Niwinp/Niwinp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
